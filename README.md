@@ -25,3 +25,13 @@ is now the homeroom teacher of her tormentor's child. Her cruel revenge plot beg
 # Trailer
 [The Glory](https://www.youtube.com/watch?v=tqVVrTvrI8U)
 
+# Awards
+**2023 (2nd) Blue Dragon Series Awards** - July 19, 2023
+- **Grand Prize (Daesang)** (Song Hye-Kyo)
+- **Best Supporting Actress** (Lim Ji-Yeon)
+
+**2023 (59th) BaekSang Arts Awards** - April 28, 2023
+- **Best Drama**
+- **Best Actress** (Song Hye-Kyo)
+- **Best Supporting Actress** (Lim Ji-Yeon)
+
